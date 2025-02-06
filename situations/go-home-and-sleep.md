@@ -1,1 +1,1 @@
-[What happens next??](join-wresting.md)
+[What happens next??](join-wrestling.md)
