@@ -1,5 +1,5 @@
-# Stop the robber
+# Stop the robber the right way
 
-After stopping the robber, you feel pretty awesome about doing something good for once. It hits you—maybe you can actually use your powers to help people. You remember what Uncle Ben always said: "With great power comes great responsibility." That really sticks with you, and you realize it’s time to start doing the right thing. Eventually, you step up and become Spider-Man, using your powers for good.
+This time, you don’t let your anger control you. You chase the robber down, but you keep your cool and don’t let revenge take over. When you catch him, you grab him, not to hurt him, but to stop him. You hold him there until the cops show up, making sure he gets handed over to the authorities. Watching them take him away, you feel a weight lift off your shoulders, knowing you did the right thing instead of letting your emotions take charge.
 
-[Start over](../alarm.md)
+[Ending!](become-spiderman.md)

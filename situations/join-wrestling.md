@@ -4,4 +4,4 @@ After discovering your powers, you start thinking about ways to make money and g
 
 [Let him get away with the money.](robber-kills-uncle.md)
 
-[Stop the robber.](stop-robber.md)
+[Stop the robber.](do-good-things-ending.md)
