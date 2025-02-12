@@ -1,6 +1,6 @@
 # Arrived to school
 
-You turned off and got ready to go to school. You kissed your uncle ben and aunt may goodbye, "Aye kiddo, let me give you a ride}" says uncle ben. You agreed and Uncle Ben drove you to the school, before you leave the car he says, "Peter you know, I care fo you.. Alot and i know high school can be hard espically if you don´t fit in. But Im proud of you, i know that you can do amazing things, grow power. But always with great power comes great respon
+You turned off the car and got ready to go to school. You kissed Uncle Ben and Aunt May goodbye. "Hey, kiddo, let me give you a ride," says Uncle Ben. You agreed, and Uncle Ben drove you to school. Before you left the car, he said, "Peter, you know I care for you... a lot. I know high school can be hard, especially if you don't fit in. But I'm proud of you. I know that you can do amazing things, grow strong. But remember, with great power comes great responsibility."
 
 
 [Go meet up with your friends to attend the trip](inside-the-lab.md)
