@@ -22,7 +22,7 @@ You pulled him up in the celling holding him to shut his mouth using the web flu
 
 You decide to put him in top of a container to get the other one.
 
-"Aye Marco, where´d you go"
+"Aye Marko, where´d you go"
 
 "Hes not here" you said right before punching him lightly.
 

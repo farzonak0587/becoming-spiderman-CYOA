@@ -21,7 +21,7 @@ You checked his jaw, You broke his jaw.
 
 " HOLY MOLY I AM SO SORRY I DID- DIDNT MEAN TO THROW A HARD PUNCH"
 
-"M-MY JA-AAAAW" the robber said in pain
+"M-MY JA-AAAAW, MARKO RUN" the robber said to the 2nd robber
 
 "OH MY GOSH UH STAY THERE"
 
