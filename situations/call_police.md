@@ -12,4 +12,11 @@ You grabbed on of the robbers phone to call 911.
 
 "Where is your loction"
 
-"UH queens
+"uhm. Oh my days the connection is bad..okay byee"
+
+"If i do that im going to get caught yikes."
+
+You decide to tied both of them together and web swing the nearest police station, more practice for web swinging, you left a posted note wring the condition of the robbers and web swing as fast as you can but someone took a picture of you.
+
+
+
