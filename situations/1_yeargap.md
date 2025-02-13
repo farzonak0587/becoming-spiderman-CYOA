@@ -6,5 +6,5 @@ The first robber you stop, Marko, you catched him more times on robberies but on
 Doesnt ring a bell but maybe it will be important later on.
 The city is corrupt by mafias but its okay because at the end of the day. Your The Amazing Spiderman.
 
-[Thank you, Start over?](alarm.md)
+[Thank you, Start over?](../alarm.md)
 
